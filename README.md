@@ -1,6 +1,6 @@
 # Brenda Castro🐧🪙
-<br/>  
-**`Data Analyst/ Pricing Analyst`**
+
+**Data Analyst/ Pricing**
 
 Meu nome é Brenda Castro, sou natural de Manaus-AM e Bacharel em Estatística pela Universidade Federal do Amazonas (UFAM). Também possuo formação técnica em Contabilidade. Atualmente, atuo como Analista de Preços, com foco no acompanhamento de commodities. Tenho grande interesse em aprender coisas novas e gosto de compartilhar conhecimento e ideias relacionadas à Economia.
 
